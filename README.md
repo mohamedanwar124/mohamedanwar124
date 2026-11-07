@@ -5,7 +5,7 @@
 
 Egypt · Open to Remote & Freelance Opportunities
 
-[LinkedIn](ADD_YOUR_LINKEDIN_URL) · [Email](ADD_YOUR_PROFESSIONAL_EMAIL)
+[LinkedIn](https://www.linkedin.com/in/mohamed-anwar-50a431119) · [Email](ADD_YOUR_PROFESSIONAL_EMAIL)
 
 ---
 
